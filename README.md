@@ -1,1 +1,1 @@
-You can send it to leonardo-oliveira06@proton.me
+You can send pgp message to leonardo-oliveira06@proton.me
